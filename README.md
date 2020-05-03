@@ -1,2 +1,0 @@
-# satya
-Satya's Files
